@@ -8,8 +8,8 @@
 
 
 &nbsp;<div align="center">
-![tumblr_35996f8f5fe2d42654b919bc7e56a8ae_ca883165_500 (1)](https://github.com/user-attachments/assets/a0d4acc0-a4a6-4f72-9b72-a8cfcf4867d2)
+![tumblr_07bad2fbcfd52d6694bce686d42b8f83_bc50324d_540](https://github.com/user-attachments/assets/55e7bbfe-6d60-4ea6-a1cd-b8cf3b8c25b1)
 
-&nbsp;<div align="center">
+
   [![Visits](https://komarev.com/ghpvc/?username=radiocompany&logo=GitHub&label=profile%20views&color=336699&logoColor=white&style=flat-square)](https://github.com/radiocompany)
 </div>
