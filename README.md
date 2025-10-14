@@ -11,5 +11,5 @@
 ![tumblr_07bad2fbcfd52d6694bce686d42b8f83_bc50324d_540](https://github.com/user-attachments/assets/55e7bbfe-6d60-4ea6-a1cd-b8cf3b8c25b1)
 
 
-  [![Visits](https://komarev.com/ghpvc/?username=radiocompany&logo=GitHub&label=profile%20views&color=336699&logoColor=white&style=flat-square)](https://github.com/radiocompany)
+  [![Visits](https://komarev.com/ghpvc/?username=radiocompany&logo=GitHub&label=ㅤagents%20ㅤ&color=Ff0000&logoColor=white&style=plastic)](https://github.com/radiocompany)
 </div>
