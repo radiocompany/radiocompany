@@ -2,19 +2,19 @@
 &nbsp;<div align="center">
 <img width="540" height="305" alt="ezgif com-animated-gif-maker" src="https://github.com/user-attachments/assets/739b69c2-bfec-4a77-b0fb-de06e3757add" />
 &nbsp;<div align="center">
-adam or johnㅤ![tumblr_15e971610652b3ebc52924ef80e06c58_5fac6fd7_75](https://github.com/user-attachments/assets/6830d03c-a92e-4050-9484-340a6bebe2f8)ㅤ࣪ truly, call me *whatever*
+adam **or** johnㅤ![tumblr_15e971610652b3ebc52924ef80e06c58_5fac6fd7_75](https://github.com/user-attachments/assets/6830d03c-a92e-4050-9484-340a6bebe2f8)ㅤ࣪ truly, call me *whatever*
 &nbsp;<div align="center">
 ![CuddlyVIP](https://github.com/user-attachments/assets/5b31dea7-f322-4c7f-8c73-272eb477199d)ㅤㅤ![stickers_ac1da834fdbe72a9b97be10a9aad511d](https://github.com/user-attachments/assets/c88adf7f-c46e-4f97-8bbe-5c774e4214df)ㅤㅤ![rawr](https://github.com/user-attachments/assets/9738c362-b507-4966-8cb8-47d508337caa)
 &nbsp;<div align="center">
-i am diagnosed with adhd, autism and general anxiety disorder
+i am **<ins>diagnosed</ins>** with adhd, autism and general anxiety disorder
 &nbsp;<div align="center">
-i may "show" signs of aspd or maybe it is just from my autism 
+i may "show" signs of aspd or **maybe** it is just from my autism 
 &nbsp;<div align="center">
 either way i aplolgize deeply if i ever come off harsh.
 &nbsp;<div align="center"> 
 my identity tends to fluctuate very often ![tumblr_e9a57b673c0e14cb303028b2e9155fc9_c07b1ce5_75](https://github.com/user-attachments/assets/9242933a-5a17-46e6-95a8-7c26f1d6027b)
 
-![tumblr_3bb77c3b0aee7c29d355db79b8c84ff7_42c6679d_250](https://github.com/user-attachments/assets/00ccb10d-e4ed-44de-b9fb-95bcbacd4f12)
+![tumblr_3bb77c3b0aee7c29d355db79b8c84ff7_42c6679d_250](https://github.com/user-attachments/assets/00ccb10d-e4ed-44de-b9fb-95bcbacd4f12) ![tumblr_cc5422b80aeb2bdd387aa45f9b0253a4_1b1079fe_400](https://github.com/user-attachments/assets/022fbb35-09db-4815-beea-9fbccf2bf16e)
 
 
 &nbsp;<div align="center"> 
