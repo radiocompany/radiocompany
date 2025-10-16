@@ -15,8 +15,6 @@ either way i aplolgize deeply if i ever come off harsh.
 my identity tends to fluctuate very often ![tumblr_e9a57b673c0e14cb303028b2e9155fc9_c07b1ce5_75](https://github.com/user-attachments/assets/9242933a-5a17-46e6-95a8-7c26f1d6027b)
 
 ![tumblr_3bb77c3b0aee7c29d355db79b8c84ff7_42c6679d_250](https://github.com/user-attachments/assets/00ccb10d-e4ed-44de-b9fb-95bcbacd4f12) ![tumblr_cc5422b80aeb2bdd387aa45f9b0253a4_1b1079fe_400](https://github.com/user-attachments/assets/022fbb35-09db-4815-beea-9fbccf2bf16e)
-
-
 &nbsp;<div align="center"> 
 [rentry](https://rentry.co/wolker)ㅤㅤ[strawpage](https://adanmstinkss.straw.page/)ㅤㅤ[pronouns.page](https://en.pronouns.page/@adanmwere)ㅤㅤ[sign my ata](https://adanmwere.atabook.org/)ㅤㅤ[my resource hoard](https://docs.google.com/document/d/1XUGZ8CN52RE62J0p9MqEOVf7npA2-J8qbHjP3o87H_E/edit?tab=t.0)
 &nbsp;<div align="center">
