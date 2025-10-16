@@ -3,9 +3,8 @@
 <img width="540" height="305" alt="ezgif com-animated-gif-maker" src="https://github.com/user-attachments/assets/739b69c2-bfec-4a77-b0fb-de06e3757add" />
 &nbsp;<div align="center">
 adam or johnㅤ![tumblr_15e971610652b3ebc52924ef80e06c58_5fac6fd7_75](https://github.com/user-attachments/assets/6830d03c-a92e-4050-9484-340a6bebe2f8)ㅤtruly, call me *whatever*.
-
 &nbsp;<div align="center">
-![CuddlyVIP](https://github.com/user-attachments/assets/5b31dea7-f322-4c7f-8c73-272eb477199d)ㅤ![stickers_ac1da834fdbe72a9b97be10a9aad511d](https://github.com/user-attachments/assets/c88adf7f-c46e-4f97-8bbe-5c774e4214df)ㅤ![rawr](https://github.com/user-attachments/assets/9738c362-b507-4966-8cb8-47d508337caa)
+![CuddlyVIP](https://github.com/user-attachments/assets/5b31dea7-f322-4c7f-8c73-272eb477199d)ㅤㅤ![stickers_ac1da834fdbe72a9b97be10a9aad511d](https://github.com/user-attachments/assets/c88adf7f-c46e-4f97-8bbe-5c774e4214df)ㅤㅤ![rawr](https://github.com/user-attachments/assets/9738c362-b507-4966-8cb8-47d508337caa)
 &nbsp;<div align="center">
 i am diagnosed with adhd, autism and general anxiety disorder
 &nbsp;<div align="center">
