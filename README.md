@@ -22,5 +22,19 @@ my identity tends to fluctuate very often ![tumblr_e9a57b673c0e14cb303028b2e9155
 &nbsp;<div align="center">
 *this is still a work in progress and i apologize for that*
 
+&nbsp;<div align="center">
+collection of stamps and blinkies and other stuff....
+&nbsp;<div align="center">
+![tumblr_5ca9c20a70370830a94b94f63bb91f69_8a9167f5_400](https://github.com/user-attachments/assets/56f07e99-a72f-4736-9b9f-145e2cb328e6)
+&nbsp;<div align="center">
+![tumblr_22a6061643725c4b396955b298f14714_6d06dedf_100](https://github.com/user-attachments/assets/f007a657-be16-4440-94b6-08eddea53246) ![tumblr_a9748d870d1e76b7b6774d1feb49d5b1_0202b28d_100](https://github.com/user-attachments/assets/58bb3ef5-d87e-4436-a8d5-b6dbd308ce67) ![tumblr_54202c1d20df34ea4e7fce6374df93cd_e0e7b36c_100](https://github.com/user-attachments/assets/16960d61-40a0-431e-a28f-357d11d21abe)
+
+
+
+
+
+
+
+
   [![Visits](https://komarev.com/ghpvc/?username=radiocompany&logo=GitHub&label=ㅤagents%20ㅤ&color=Ff0000&logoColor=white&style=plastic)](https://github.com/radiocompany)
 </div>
