@@ -13,8 +13,7 @@ i may "show" signs of aspd or **maybe** it is just from my autism
 either way i aplolgize deeply if i ever come off harsh.
 &nbsp;<div align="center"> 
 my identity tends to fluctuate very often ![tumblr_e9a57b673c0e14cb303028b2e9155fc9_c07b1ce5_75](https://github.com/user-attachments/assets/9242933a-5a17-46e6-95a8-7c26f1d6027b)
-&nbsp;<div align="center"> 
-*1/31/26 ♡*
+
 
 
 &nbsp;<div align="center"> 
