@@ -43,6 +43,9 @@ collection of stamps and blinkies and other stuff....
 <img width="150" height="20" alt="Tumblr_l_101773882586604" src="https://github.com/user-attachments/assets/0bfed74a-0a7c-4447-af66-434c7b076033" />
 ![tumblr_e903f181be711fee298b5635e47edec4_58184dc4_250](https://github.com/user-attachments/assets/9cd7149c-218f-4f2e-8a00-d3a7c1db3cfc) 
 <img width="150" height="20" alt="Tumblr_l_101900974705381" src="https://github.com/user-attachments/assets/76ffb4a7-19cb-42c0-8d17-2e4050704b9a" />
+<img width="150" height="20" alt="Tumblr_l_102070801998621" src="https://github.com/user-attachments/assets/2a81a4b9-cc3c-4e43-9636-bf0c27452f6d" />
+<img width="150" height="20" alt="Tumblr_l_101719068311216" src="https://github.com/user-attachments/assets/ef89a3d0-2848-4dc7-b63c-c06bbfa198c6" />
+
 
 
 
