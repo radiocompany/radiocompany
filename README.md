@@ -31,6 +31,7 @@ my identity tends to fluctuate very often ![tumblr_e9a57b673c0e14cb303028b2e9155
 &nbsp;<div align="center">
 collection of stamps and blinkies and other stuff....
 &nbsp;<div align="center">
+<img width="150" height="20" alt="Tumblr_l_90379801222001" src="https://github.com/user-attachments/assets/83b9696b-88b6-4989-8482-c1b38938376c" />
 ![d09ffb3c140c14f6ec324f1fec781a82347d9860 1  (1)](https://github.com/user-attachments/assets/8227e23d-3be3-41c5-9599-a0d9f992a8f5)
 ![tumblr_0d943cb2422410f25af8469632557f54_02b6fc2f_250](https://github.com/user-attachments/assets/0362872e-5364-449b-915c-b64401b1c7a5)
 ![tumblr_038bb3dd1c6454d8b17f4690058be877_056a040e_250](https://github.com/user-attachments/assets/c07d7499-41ee-44c1-9346-8306727941c1) ![tumblr_3bfcd45b6d38d0d18b58008d6fa3c2d8_3c535ac1_250](https://github.com/user-attachments/assets/8cef0ec2-02fc-4d8d-8e83-9010a25459b7)
