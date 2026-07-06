@@ -22,7 +22,7 @@ my identity tends to fluctuate very often ![tumblr_e9a57b673c0e14cb303028b2e9155
 </div>
 
 
-[rentry](https://rentry.co/bully55)ㅤㅤ[strawpage](https://adanmstinkss.straw.page/)ㅤㅤ[pronouns.page](https://en.pronouns.page/@adanmwere)ㅤㅤ[sign my ata](https://adanmwere.atabook.org/)ㅤㅤ[my resource hoard](https://docs.google.com/document/d/1XUGZ8CN52RE62J0p9MqEOVf7npA2-J8qbHjP3o87H_E/edit?tab=t.0)
+[rentry](https://rentry.co/bully55)ㅤㅤ[strawpage](https://adanmstinkss.straw.page/)ㅤㅤ[pronouns.page](https://en.pronouns.page/@adanmwere)ㅤㅤ[sign my ata](https://adamfckingstinks.atabook.org/)ㅤㅤ[my resource hoard](https://docs.google.com/document/d/1XUGZ8CN52RE62J0p9MqEOVf7npA2-J8qbHjP3o87H_E/edit?tab=t.0)
 &nbsp;<div align="center">
 ![tumblr_07bad2fbcfd52d6694bce686d42b8f83_bc50324d_540](https://github.com/user-attachments/assets/55e7bbfe-6d60-4ea6-a1cd-b8cf3b8c25b1)
 &nbsp;<div align="center">
