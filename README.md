@@ -84,6 +84,16 @@ collection of stamps and blinkies and other stuff....
 <img width="99" height="55" alt="Tumblr_l_33365697161988" src="https://github.com/user-attachments/assets/c33a76fd-7d7e-45d9-b344-e051aa4ed6d1" />
 <img width="99" height="57" alt="Tumblr_l_34191511874575" src="https://github.com/user-attachments/assets/cd8d25f5-355d-4414-8a88-f37588bbb29f" />
 <img width="99" height="56" alt="Tumblr_l_90193948548144" src="https://github.com/user-attachments/assets/455d35ff-d520-4db9-8e64-cf51bb739fbc" />
+<img width="99" height="56" alt="Tumblr_l_19249778364223" src="https://github.com/user-attachments/assets/d7c436bc-923c-436f-b350-8217b98935b9" />
+<img width="99" height="56" alt="Tumblr_l_18761555527271" src="https://github.com/user-attachments/assets/ae264888-0b20-4fa0-91e4-25be5f39c192" />
+<img width="99" height="56" alt="Tumblr_l_18976669991592" src="https://github.com/user-attachments/assets/6d6afc11-4c4c-4a23-b711-e11628035214" />
+<img width="99" height="56" alt="Tumblr_l_18824031337198" src="https://github.com/user-attachments/assets/970d691b-8cae-4dbb-9912-11d6de71c32d" />
+<img width="99" height="57" alt="Tumblr_l_19018155433440" src="https://github.com/user-attachments/assets/0f4947dd-84e7-4527-959b-4a5dd740ce2b" />
+<img width="99" height="52" alt="Tumblr_l_19151835130371" src="https://github.com/user-attachments/assets/f3abe44f-2265-4dc9-8178-416be6a2f56b" />
+
+
+
+
 
 
 
