@@ -17,7 +17,6 @@ my identity tends to fluctuate very often ![tumblr_e9a57b673c0e14cb303028b2e9155
 
 
 &nbsp;<div align="center"> 
-<img width="150" height="20" alt="Tumblr_l_90379801222001" src="https://github.com/user-attachments/assets/83b9696b-88b6-4989-8482-c1b38938376c" />
 ![tumblr_7e941fd608de122e053623642957008b_9bb352fe_250](https://github.com/user-attachments/assets/c1cecdef-e3ff-48af-a310-18d382c80d27)ㅤ [![Visits](https://komarev.com/ghpvc/?username=radiocompany&logo=GitHub&label=ㅤagents%20ㅤ&color=Ff0000&logoColor=white&style=plastic)](https://github.com/radiocompany)ㅤ ![tumblr_e21072d6c2bc1bba01fac15f3795ca57_f7a7a4f2_250](https://github.com/user-attachments/assets/4bc00f2e-b664-4d4d-89ad-d1931a4eb445)
 
 </div>
